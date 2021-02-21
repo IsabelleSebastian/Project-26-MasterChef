@@ -1,0 +1,1 @@
+To make the parmesan pasta, you first have to cook the pasta according to the package instructions. Next, strain the pasta after it is done cooking and lather generously with your oil of choice. Finally, garnish with parmesano reggino and any other toppings. Enjoy! 
